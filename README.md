@@ -2,5 +2,5 @@
 - 👀 I’m interested in **website development, UI/UX design, digital marketing, and e-commerce solutions**.  
 - 🌱 I’m currently learning **Programing** to elevate my skills.  
 - 💞️ I’m looking to collaborate on **innovative web and app development projects, branding, and digital solutions**.  
-- 📫 How to reach me: **[jaskerlee@example.com](mailto:jaskerlee@example.com)** | **[LinkedIn](https://www.linkedin.com/in/jaskerlee/)**  
+- 📫 How to reach me: **[jaskerlee@example.com](mailto:jaskerlee@example.com)** | **[LinkedIn]([https://www.linkedin.com/in/jaskerlee/](https://www.linkedin.com/in/nomiii/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3B%2Fy1NOtxuRQqPAJmcIS%2Bm5A%3D%3D))**  
 - 😄 Pronouns: **He/Him**
